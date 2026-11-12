@@ -1,0 +1,2 @@
+# SimpusMini
+semoga berhasil
